@@ -1,17 +1,17 @@
 ---
 title: 'The Human Experience'
 date: 'August 25, 2022'
-excerpt: 'What is the ultimate waste?'
+excerpt: 'What are we to value?'
 cover_image: '/images/posts/wood.jpg'
 ---
 
 <!-- Thesis: The Greatest Waste is the Waste of Human Experience -->
 
-It was not alwayst the case that we valued human experiences, or human lives for that matter. Traditionally, when the human condition was backwards, so too were its values. We would previously hang people for stealing a loaf of bread. But as society advanced, so too did its values
+It was not alwayst the case that we valued human experiences, or human lives for that matter. We would  hang people for stealing a loaf of bread. But as society advanced, so too did its values
 
-Only recently did we conceive of a radical concept -- that we, as human beings, each had an unalienable right to life. When you tell individuals they mean something, they live up to it. Believing in the value of human beings, we unleashed an unbelievable era of human prosperity, making cars, trains, and planes do the work that was previously carried on the back of individuals. The use of machinery made it that humans could produce significantly more than what could be accomplished previously
+Only recently did we conceive of a radical concept -- that human beings, each have an unalienable right to life. When you tell individuals they mean something, they live up to it. Believing in the value of human beings, we unleashed an unbelievable era of human prosperity, making cars, trains, and planes do the work that was previously carried on the back of individuals. 
 
-Unfortunately though, along with this material abundance came with a gluttony of overconsumption, with Americans no longer being referred to as "American Citizens," but rather "American Consumers." In trying desperately to escape the hovels of material scarcity, humanity overstuffed itself with an overabundance of ephemeral joy.
+Unfortunately, along with this material abundance came with a gluttony of overconsumption, with Americans no longer being referred to as "American Citizens," but rather "American Consumers." In desperately escaping the hovels of material scarcity, humanity overstuffed itself with fleeting pleasure.
 
 So, what is it then that we should value, if not for the material things? Traditionally we value things that are scarce (e.g. land). But, while the new car we purchase may be limited in quantity, there is one thing in our lives that is truly one of a kind -- our individual human experience.  
 
