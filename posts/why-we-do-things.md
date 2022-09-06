@@ -19,21 +19,19 @@ There are two reasons that people do things.  Either to enjoy the present moment
 
 Focusing only on the present is short-sighted.  It is hard to enjoy a present when anxious about the future.  
 
-Focusing solely on the future is foolish, as there is little use in creating a better future that we do not enjoy.
+Focusing solely on the future is equally silly, as there is little use in applyings ourselves to a future that we do not take the time to enjoy.
 
 ## Present vs Future
 
-That begs the question -- when should we prioritize the future? 
+That begs the question -- when should we prioritize our vision of the future over the present moment?  
 
-We should prioritize the future when our vision of the future, supercedes our present moment.  A vision is a future reality that has yet to be created, so to prioritize it over our current reality, the future reality must be more important.
+A vision is simply an imagined reality that has the potential to exist.  For it to take precedence over our current reality, the potential of turning that vision into a reality, must supercede our immediate reality.
 
-Looking back, Rosa Park's vision of a more equal future superceded the immediate suffering she experienced in a jail cell.
-
-Once the a vision has been properly defined, the concern shifts from defining the vision, to achieving it.  
+This happens faily often.  For instance, Rosa Park's vision of a more equal future superceded her immediate suffering.  She was willing to sit in jail, with the hope that it would yield a future where people could sit together. 
 
 ## How to realize a better future
 
-The best way to predict the future is to create it.  But in order to do so, the proper planning must be done.  Here are the proper steps
+Not only is important to want a better future, it is more important to actually ensure it comes to fruition.  Doing so requires the following.
 
   1. Articulating the Vision
   1. Building a Team
@@ -46,9 +44,13 @@ To guarantee the best outcome, it is critical that success if clearly defined.  
 
 ## Building a Team
 
-If you want to go fast, go alone; if you want to go far, go together. - African Proverb
 
-Nothing of importance can be done alone in this modern era.  Building the right team, and sharing a common vision is critical to achieving tangible progress.
+> If you want to go fast, go alone; if you want to go far, go together. 
+>
+> <cite>African Proverb</cite>
+
+
+Nothing of importance can be done alone. Especially in the modern era, teams are necessary.
 
 ### Coaching
 
