@@ -27,10 +27,12 @@ As we shift from childhood to adulthood, it is equally important that we take th
 
 ## Friends
 
-Unlike family, friends are people that you are not forced to involve yourself with. It would logically follow then that you choose your friends. But, personally, that has never been the case. With all of my friendships, they grow organically without intent.
+Unlike family, friends are people that you aren't predestined to involve yourself with. It would logically follow then that you choose your friends. But, that is not the case.  You don't choose your friends, they don't choose you, they happen to happen without you realizing it in the moment.
 
 The fact that friendships just happen, without any intention, somehow makes it all the more meaningful. A lot of important things in life can and should be planned, but that is not the case with friendships.
 
-The best way to develop friendships isn't to grasp at it, but rather to fall into it. The harder we try, the less natural it will be. But the moment we let go of our desires and who we want to be, only then can we be a part of a relationship that is much deeper and more fulfilling than what we could constitute on our own.
+The best way to develop friendships isn't to grasp at it, but rather to fall into it. The harder we try, the less natural it will be. But the moment we let go of our desires and who we want to be, is when we can be a part of a relationship that is much deeper and more fulfilling than anything we could become in isolation. 
 
 As with most valuable things, the greatest mistake you can make with friendships is to take them for granted. While the friendship isn't something you should try for, the acknowledgement of mutual significance in each others' lives is something that must be actively articulated. Rarely are the things we regret the things we did.  Rather, the things we regret are that which we didn't do. So take the time to let your friends know how much they matter. 
+
+## Dreams
