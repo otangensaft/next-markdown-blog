@@ -24,3 +24,11 @@ Obstacles in life, particularly with family members, are inevitable. You do not 
 Often as we grow older and leave the nest, it is easy to forget where we came from and the people who raised us. Not only is that a disservice to them, it is also a disservice to us to not appreciate the love and care that has gone into our individual development.
 
 As we shift from childhood to adulthood, it is equally important that we take the time to care for those that need guidance. I think to my niece, and how these years will serve as some of the most formative years of her development. Properly raising a child isn't easy, but becoming an adult necessitates responsibility whether we like it or not.  This means equipping Belle with  the tools necessary to succeed on her own, hopefully long after I am gone.  
+
+## Friends
+
+Unlike family, friends are people that you are not forced to involve yourself with. It would logically follow then that you choose your friends. But, personally, that has never been the case. With all of my friendships, they grow organically without intent.
+
+The fact that friendships just happen, without any intention, somehow makes it all the more meaningful. A lot of important things in life can and should be planned, but that is not the case with friendships.
+
+The best way to develop friendships isn't to grasp at it, but rather to fall into it. The harder we try, the less natural it will be. But the moment we let go of our desires and who we want to be, only then can we be a part of a relationship that is much deeper and more fulfilling than what we could constitute on our own.
