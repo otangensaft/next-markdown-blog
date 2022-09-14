@@ -36,3 +36,5 @@ The best way to develop friendships isn't to grasp at it, but rather to fall int
 As with most valuable things, the greatest mistake you can make with friendships is to take them for granted. While the friendship isn't something you should try for, the acknowledgement of mutual significance in each others' lives is something that must be actively articulated. Rarely are the things we regret the things we did.  Rather, the things we regret are that which we didn't do. So take the time to let your friends know how much they matter. 
 
 ## Dreams
+
+No heart has ever suffered in search of its dreams.
