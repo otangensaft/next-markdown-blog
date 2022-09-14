@@ -32,3 +32,5 @@ Unlike family, friends are people that you are not forced to involve yourself wi
 The fact that friendships just happen, without any intention, somehow makes it all the more meaningful. A lot of important things in life can and should be planned, but that is not the case with friendships.
 
 The best way to develop friendships isn't to grasp at it, but rather to fall into it. The harder we try, the less natural it will be. But the moment we let go of our desires and who we want to be, only then can we be a part of a relationship that is much deeper and more fulfilling than what we could constitute on our own.
+
+As with most valuable things, the greatest mistake you can make with friendships is to take them for granted. While the friendship isn't something you should try for, the acknowledgement of mutual significance in each others' lives is something that must be actively articulated. Rarely are the things we regret the things we did.  Rather, the things we regret are that which we didn't do. So take the time to let your friends know how much they matter. 
