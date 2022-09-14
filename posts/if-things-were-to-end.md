@@ -7,7 +7,6 @@ cover_image: '/images/posts/img1.jpg'
 
 <!-- Thesis: Priorities would change if things were to end -->
 
-# If Things Were to End
 
 If things were to end tomorrow, how differently would I do things? Would I care about the same things I care about doing today? 
 
