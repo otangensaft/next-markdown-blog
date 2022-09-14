@@ -18,8 +18,10 @@ Likely, I would do these things differently.  I would spend more time with my fa
 
 The first thing I would do differently is prioritize the time I have spent with my family.  Perhaps this is a result of most of my life being defined by their presence, meaning that I am living in the past, but I think that my youth is some of the most formative years of my life, and I owe it to my family for where I am today. 
 
-Things have not always been smooth sailing with each member of my family, particularly with my dad.  But there is a difference between not getting a long and harboring resentment. A young tree, when its roots are impeded by a rock, grows best when it flows past its obstacle rather than confront it head on. 
+Things have not always been smooth sailing with each member of my family, particularly with my dad.  But there is a difference between not getting along and harboring resentment. A young tree, when its roots are impeded by a rock, grows best when it flows past its obstacle rather than trying to drill through it. 
 
 Obstacles in life, particularly with family members, are inevitable. You do not choose your parents, and your parents do not choose the person you are to become. Your compatibility with your parents is unlikely at best, but what you do give up in potential amicability, you instead gain in mutual understanding that it is okay to be different -- and it is okay to still love one another even despite your differences.
 
 Often as we grow older and leave the nest, it is easy to forget where we came from and the people who raised us. Not only is that a disservice to them, it is also a disservice to us to not appreciate the love and care that has gone into our individual development.
+
+As we shift from childhood to adulthood, it is equally important that we take the time to care for those that need guidance. I think to my niece, and how these years will serve as some of the most formative years of her development. Properly raising a child isn't easy, but becoming an adult means carrying the responsibility of ensuring that Belle is equipped with the tools necessary to live her intended individual experience, hopefully far long after I am gone.  
